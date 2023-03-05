@@ -7,4 +7,4 @@ Bu sunumu üç kişi yaptık:
   3- Fatih İRGİ
       fatihirgi@gmail.com
       
-Biz bu sunumda birkaç farklı durum için birkaç farklı fikirler bulup onları anlattık. Teşekkürler.
+Biz bu sunumda birkaç farklı durum için birkaç farklı fikir bulup onları anlattık. Teşekkürler.
